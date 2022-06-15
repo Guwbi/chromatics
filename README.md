@@ -1,4 +1,6 @@
 # chromatics
-my chromatic
+Chromatic Scale
+
 Give credit to me when using, please.
-# I do not give permission for any games on roblox other than Funky Friday, Monday Morning Misery, Basically FNF, FunkyBeats, Even more FNF, or Litteraly FNF to use anything that has or is related to the chromatics I make or made.
+
+If I see some 4 year old not giving credit while using this im going to flip my shit
